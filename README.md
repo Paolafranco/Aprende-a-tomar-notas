@@ -1,4 +1,7 @@
 # APRENDE A TOMAR NOTAS
+
+![Notas](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQewkBpnNlc7VpefzLOY55rPbpfk31JDiOKev6_j6-TFGmBLEAn)
+
 Los apuntes nos ayudan a reforzar la atención sobre lo que el profesor está diciendo.
 
 El hecho de tomar apuntes aumenta nuestra capacidad de prestar atención. Además, los alumnos que toman apuntes y que los toman bien tienen un porcentaje elevado de éxito en las pruebas, mucho mayor que el de los alumnos que no lo hacen o que toman unos apuntes deficientes.
